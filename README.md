@@ -1,12 +1,6 @@
-#### <p align="center"> ![](https://files.catbox.moe/vjbppk.png)
-#### <p align="center"> ![](https://files.catbox.moe/mmtlzh.png)
-
-#### <p align="center"> graphics by yours truly
+ill remake this thing.. i promise.. stay w my links while that
 #### <p align="center"> [commissions](https://fricomms.carrd.co/)  ❀  [tiktok](https://www.tiktok.com/@fri_core)  ❀  [neospring](https://neospring.org/@fri)  ❀  [atabook](https://fri.atabook.org)  ❀  [main rentry](https://rentry.co/fri)  ❀  [side rentry](https://rentry.co/feelbetter)  ❀  [shared rentry](https://rentry.co/samestation)
 #### <p align="center">[pronouns cc](https://pronouns.cc/@nightic)  ❀   @friself on disc  ❀  [pt info](https://rentry.co/ptowner)  ❀  [spotify](https://open.spotify.com/user/31ajix25v2i4pz3etbcs3ve3rsmm?si=a6583ce8b4a94830)  ❀  [pinterest](https://pin.it/3agjiw2iX)  ❀  [strawpage](https://friself.straw.page/)
-
-
-#### <p align="center"> ![](https://files.catbox.moe/i8tf41.png)
 
 ㅤ
 ㅤ
