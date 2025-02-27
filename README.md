@@ -8,7 +8,7 @@ also my skin style is called underwater cus i use a blue tint 🔥🔥🔥🔥�
 
 
 ummm das all ... be aware im shy at first but i will become a yapper in 0,4 seconds so dont get jumspcared!
-#### <p align="center"> ![](https://i.pinimg.com/736x/53/4b/cc/534bcc60c56fce6ce21e5e8fbaebf977.jpg)![](https://i.pinimg.com/736x/25/55/b2/2555b20f4be9e4257a63988d3a9fc294.jpg)
+#### <p align="center"> ![](https://i.pinimg.com/736x/25/55/b2/2555b20f4be9e4257a63988d3a9fc294.jpg)
 
 ㅤ
 ㅤ
