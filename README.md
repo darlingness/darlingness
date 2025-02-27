@@ -6,6 +6,10 @@ also my skin style is called underwater cus i use a blue tint 🔥🔥🔥🔥�
 #### <p align="center"> [commissions](https://fricomms.carrd.co/)  ❀  [tiktok](https://www.tiktok.com/@fri_core)  ❀  [neospring](https://neospring.org/@fri)  ❀  [atabook](https://fri.atabook.org)  ❀  [main rentry](https://rentry.co/fri)  ❀  [side rentry](https://rentry.co/feelbetter)  ❀  [shared rentry](https://rentry.co/samestation)
 #### <p align="center">[pronouns cc](https://pronouns.cc/@nightic)  ❀   @friself on disc  ❀  [pt info](https://rentry.co/ptowner)  ❀  [spotify](https://open.spotify.com/user/31ajix25v2i4pz3etbcs3ve3rsmm?si=a6583ce8b4a94830)  ❀  [pinterest](https://pin.it/3agjiw2iX)  ❀  [strawpage](https://friself.straw.page/)
 
+
+ummm das all ... be aware im shy at first but i will become a yapper in 0,4 seconds so dont get jumspcared!
+![](https://i.pinimg.com/736x/53/4b/cc/534bcc60c56fce6ce21e5e8fbaebf977.jpg)
+
 ㅤ
 ㅤ
 ㅤ
