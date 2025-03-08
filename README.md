@@ -1,5 +1,5 @@
 ill remake this thing.. i promise.. stay w my links & random art ramble while that
-
+MY COMMISSIONS ARE OPEN AGAAAAAAAAAAAAAINNNNNNNNNNNNNNNNNN !!!!!!!!!!!!!!!!!!
 yes i kin frilled jellyfish cookie. yes thats where i got the name fri from. yes i kin a cookie who barely has pfps/arts. yes i kin lots of cute cookies like parfait/cream ferret but im too lazy to update my pronouns cc and add them there. and YES i am a jellyfish. how did you know?? :-O
 
 also my skin style is called underwater cus i use a blue tint 🔥🔥🔥🔥🔥🔥
