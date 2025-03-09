@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=darlingness&label=🪼&color=8bd3f7&style=plastic)
+
 ill remake this thing.. i promise.. stay w my links & random art ramble while that
 
 MY COMMISSIONS ARE OPEN AGAAAAAAAAAAAAAINNNNNNNNNNNNNNNNNN !!!!!!!!!!!!!!!!!!
