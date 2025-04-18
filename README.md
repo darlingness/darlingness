@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=darlingness&label=🪼&color=8bd3f7&style=plastic)
-#### <p align="center"> ![](https://files.catbox.moe/bazh5e.png)
+#### <p align="center"> ![](https://files.catbox.moe/c60jox.png)
 
 
 ill remake this thing.. i promise.. stay w my links & random art ramble while that
