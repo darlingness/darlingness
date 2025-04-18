@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=darlingness&label=🪼&color=8bd3f7&style=plastic)
 #### <p align="center"> ![](https://files.catbox.moe/qlafit.png)
 
+#### <p align="center"> [![](https://files.catbox.moe/p4sitv.png)](https://fricomms.carrd.co/)
 
 ill remake this thing.. i promise.. stay w my links & random art ramble while that
 
