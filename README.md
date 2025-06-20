@@ -1,3 +1,5 @@
+happy 200 followersss  : 3 thank you chat 
+
 #### <p align="center"> ![](https://files.catbox.moe/qlafit.png)
 #### <p align="center">![](https://komarev.com/ghpvc/?username=darlingness&label=🍰&color=F6C3AF&style=plastic)
 #### <p align="center"> [![](https://files.catbox.moe/p4sitv.png)](https://fricomms.carrd.co/)  [![](https://files.catbox.moe/s1yu5n.png)](https://www.tiktok.com/@fri_core)  [![](https://files.catbox.moe/a9er4u.png)](https://fri.atabook.org)
