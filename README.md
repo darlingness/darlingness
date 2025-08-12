@@ -1,4 +1,4 @@
-Hey guys i wanted to be real clear ok i am MAKING SURE rn IF U WANT TO TALK TO ME PLEASE DOOOOOOOOOO I DONT CARE IF YOU'RE AN EX FRIEND OR IF YOU JUST WANNA ASK SOMETHING ABOUT MY FAVORITE MEDIA I *WILL* REPLY TO U NO EXCEPTIONS. I have nobody blocked and i have gotten to the stage of joyfullness. come talk to me i am super friendly NO MATTER WHO YOU ARE and il NEVER death threat anyone!!! COME TALK TO ME ABOUT YUMES COOME TALK TO ME ABOUT KINS SHIPS LITERALLY ANYTHIIIIIIIIIIIIIIIIIIINGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG JUST DM ME ON MY DISCORDDDDD did i make clear that i want to friend people : 3
+#### <p align="center"> hey guys check out me and my trio's [rentry](https://rentry.co/circustrio-)
 #### <p align="center"> ![](https://files.catbox.moe/qlafit.png)
 #### <p align="center">![](https://komarev.com/ghpvc/?username=darlingness&label=🍰&color=F6C3AF&style=plastic)
 #### <p align="center"> [![](https://files.catbox.moe/p4sitv.png)](https://fricomms.carrd.co/)  [![](https://files.catbox.moe/s1yu5n.png)](https://www.tiktok.com/@fri_core)  [![](https://files.catbox.moe/a9er4u.png)](https://fri.atabook.org)
