@@ -1,4 +1,4 @@
-CHECK MY STRAWPAGE PLEASE PELASE EPLASE [](https://fricore.straw.page/)
+## <p align="center"> CHECK MY STRAWPAGE PLEASE PELASE EPLASE https://fricore.straw.page/
 
 #### <p align="center"> ![](https://files.catbox.moe/qlafit.png)
 #### <p align="center">![](https://komarev.com/ghpvc/?username=darlingness&label=🍰&color=F6C3AF&style=plastic)
