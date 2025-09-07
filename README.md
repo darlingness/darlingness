@@ -1,4 +1,4 @@
-## <p align="center"> CHECK MY STRAWPAGE PLEASE PELASE EPLASE https://fricore.straw.page/
+## <p align="center"> CHECK MY STRAWPAGE PLEASE PELASE EPLASE https://fris.straw.page/
 #### <p align="center"> and also sign my ata https://fri.atabook.org/
 
 #### <p align="center"> ![](https://files.catbox.moe/qlafit.png)
