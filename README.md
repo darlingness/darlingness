@@ -1,10 +1,5 @@
-## <p align="center"> CHECK MY STRAWPAGE PLEASE PELASE EPLASE https://fris.straw.page/
-#### <p align="center"> and also sign my ata https://fri.atabook.org/
-#### <p align="center"> my github will go through a revamp soon so uh yeah
-#### <p align="center"> ![](https://files.catbox.moe/qlafit.png)
-#### <p align="center">![](https://komarev.com/ghpvc/?username=darlingness&label=🍰&color=F6C3AF&style=plastic)
-#### <p align="center"> [![](https://files.catbox.moe/p4sitv.png)](https://fricomms.carrd.co/)  [![](https://files.catbox.moe/s1yu5n.png)](https://www.tiktok.com/@fri_core)  [![](https://files.catbox.moe/a9er4u.png)](https://fri.atabook.org)
-#### <p align="center"> [![](https://files.catbox.moe/brqhku.png)](https://rentry.co/confession-)  [![](https://files.catbox.moe/f0eetj.png)](https://rentry.co/seadream)  [![](https://files.catbox.moe/14e2x9.png)](https://rentry.co/fri)
-#### <p align="center"> [![](https://files.catbox.moe/h52cwj.png)](https://pronouns.cc/@fri)  [![](https://files.catbox.moe/uj7sw6.png)](https://open.spotify.com/user/31ajix25v2i4pz3etbcs3ve3rsmm?si=a6583ce8b4a94830)  [![](https://files.catbox.moe/7easva.png)](https://pin.it/3agjiw2iX)
-#### <p align="center"> ![](https://files.catbox.moe/wrd78p.png)
-#### <p align="center"> ![](https://files.catbox.moe/dd71un.png)
+### <p align="center"> ![](https://files.catbox.moe/1acswk.gif)
+#### <p align="center">![](https://komarev.com/ghpvc/?username=darlingness&label=🛜&color=FFBBFF&style=plastic)
+#### <p align="center"> [![](https://files.catbox.moe/59qc2m.png)](https://fris.straw.page/) [![](https://files.catbox.moe/blfqz0.png)](https://fri.atabook.org)
+### <p align="center"> [![](https://files.catbox.moe/1befow.png)](https://fricomms.carrd.co/) [![](https://files.catbox.moe/rpq8os.png)](https://rentry.co/confession-) [![](https://files.catbox.moe/qg5zh2.png)](https://linktr.ee/fricore)
+### <p align="center"> ![](https://files.catbox.moe/j0191b.png)
