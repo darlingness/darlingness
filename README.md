@@ -1,4 +1,3 @@
-###### <p align="center"> hey guys read my [yapping](https://fris.straw.page/hoard) pretty pls
 ### <p align="center"> ![](https://files.catbox.moe/i5mhis.gif)
 #### <p align="center">![](https://komarev.com/ghpvc/?username=darlingness&label=🌀&color=FFBBFF&style=plastic)
 #### <p align="center"> [![](https://files.catbox.moe/59qc2m.png)](https://fris.straw.page/) [![](https://files.catbox.moe/blfqz0.png)](https://fri.atabook.org) [![](https://files.catbox.moe/alksmq.png)](https://listography.com/fri)
