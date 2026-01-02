@@ -1,5 +1,4 @@
 #### <p align="center"> semi inactive
-#### <p align="center"> my graphics keep bugging it pmo pmo pm
 ### <p align="center"> ![](https://files.catbox.moe/1acswk.gif)
 #### <p align="center">![](https://komarev.com/ghpvc/?username=darlingness&label=🌀&color=FFBBFF&style=plastic)
 #### <p align="center"> [![](https://files.catbox.moe/59qc2m.png)](https://fris.straw.page/) [![](https://files.catbox.moe/blfqz0.png)](https://fri.atabook.org) [![](https://files.catbox.moe/alksmq.png)](https://listography.com/fri)
