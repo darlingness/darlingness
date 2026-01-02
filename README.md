@@ -1,4 +1,4 @@
-#### <p align="center"> sign my cute [tree](https://colormytree.me/2025/01KC6V0X4M1CTX7YYYDNJBAWY5) !! (lmk on whispers if you do so i can sign yours back!! :3) 
+#### <p align="center"> semi inactive
 #### <p align="center"> my graphics keep bugging it pmo pmo pm
 ### <p align="center"> ![](https://files.catbox.moe/i5mhis.gif)
 #### <p align="center">![](https://komarev.com/ghpvc/?username=darlingness&label=🌀&color=FFBBFF&style=plastic)
