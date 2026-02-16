@@ -1,4 +1,4 @@
-#### <p align="center"> trying to be active again .. maybe
+#### <p align="center"> my ponytown fixation died after 4 years ... im trying to be active again i swear
 ### <p align="center"> ![](https://files.catbox.moe/1acswk.gif)
 #### <p align="center">![](https://komarev.com/ghpvc/?username=darlingness&label=🌀&color=FFBBFF&style=plastic)
 #### <p align="center"> [![](https://files.catbox.moe/59qc2m.png)](https://fris.straw.page/) [![](https://files.catbox.moe/blfqz0.png)](https://fri.atabook.org) [![](https://files.catbox.moe/alksmq.png)](https://listography.com/fri)
